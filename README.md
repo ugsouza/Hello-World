@@ -1,2 +1,14 @@
 # Hello-World
 OI MUNDO
+TUDO BEM?
+EAEAE
+EAE
+AE
+A
+EA
+EA
+EAE
+E
+A
+E
+AE
